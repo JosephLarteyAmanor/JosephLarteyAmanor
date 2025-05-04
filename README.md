@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects, community tech initiatives, and anything that helps me grow as a developer.
 
-📫 How to reach me: [Email](jlamanor810@gmail.com) | [LinkedIn](https://www.linkedin.com/in/josephlarteyamanor) | [Twitter](https://twitter.com/@Larteyma)
+📫 How to reach me:[Email](jlamanor810@gmail.com)| [LinkedIn](https://www.linkedin.com/in/josephlarteyamanor) | [Twitter](https://twitter.com/@Larteyma)
 
 😄 Pronouns: He/Him
 
